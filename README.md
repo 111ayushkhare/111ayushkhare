@@ -12,7 +12,7 @@ As a technology enthusiast, I have experience in back-end technologies like Spri
 - 🤔 I’m looking for help on how to excel in frontend technologies along with optimal strategy for quick grasp
 <!-- - 💬 Ask me about ... -->
 - 📫 How to reach me: 
-  - Email : ayushkhare.dev23@gmail.com
+  - Email : ayushkhare111.work@gmail.com
   - LinkedIn : https://www.linkedin.com/in/111ayushkhare/ 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Being from a studious & technical backgroud, I have a strong interest in performing acts, be it a monologue or a group play or a silent act, was much active in!
+- ⚡ Fun fact: Being from a studious & technical background, I have a strong interest in performing acts, be it a monologue or a group play or a silent act, was much active in!
